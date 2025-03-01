@@ -1,4 +1,4 @@
-# SPECTRAL.DNC-S®(光譜.DNC-S) 抗白髮+頭髮密度精華液(Anti-Gray + Hair Density Serum) [香港代購](https://haircores.com/）
+# SPECTRAL.DNC-S®(光譜.DNC-S) 抗白髮+頭髮密度精華液(Anti-Gray + Hair Density Serum) [香港代購](https://haircores.com/)
 
 網站：https://haircores.com/
 
